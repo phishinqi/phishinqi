@@ -12,7 +12,6 @@
 * 身高：大概170左右...?
 * 年龄：18岁左右
 * 体重：50-55kg
-* 状态：上学，并处于时不时发癫的状态，可能症状包括并不限于发情、抑郁、妄想、焦虑、强迫、精神分裂、躁狂等 **（注：以上症状均发生过二次或多次）**
 
 ## 关于个人
 
@@ -26,24 +25,3 @@
 * 被大多数人认为“思想消极”，但本人并未感觉到这一点
 * 没有什么擅长的，对Touhou有特殊的兴趣
 * 来自于中国北方，不能熟练的使用如下语言：中文、英文、日文。擅长使用Deepl翻译
-
-## 关于我的站点
-* Twitter①:https://twitter.com/Ryokoukiryu
-* Twitter②:https://twitter.com/AliceTimeOut
-* Homepage:https://www.phishinqi.xyz/
-* Bilibili:https://space.bilibili.com/325126747
-* Fandom:https://community.fandom.com/wiki/User:PhishinQi
-* MCMOD:https://center.mcmod.cn/32900/
-* 爱发电:https://afdian.net/@PhishinQi
-* 电报频道:https://t.me/phishinqi_channel
-* 电报群:https://t.me/t06e04a01
-
-## 联系方式
-* QQ: 2844188892
-* WeChat:Ryokou_Kiryu
-* G-Mail：abczhaozhe1@gmail.com
-* OutLook：phishinqi@outlook.com
-* Hotmail：phishinqi@hotmail.com 注：该邮箱用于问题反馈等作用，有急事联系请发送到该邮箱确保不被忽视！
-* QQ Mail：2844188892@qq.com
-* 163 Mail：abczhaozhe1@163.com
-* Proton Mail:t06e04a01@protonmail.com
