@@ -2,7 +2,7 @@
 **你好！这里是Jea**，一条仅存活在互联网中的废物喵。在茫茫的海洋中似乎只有此处的一方扁舟可以使我们相遇。
 
 ## 常用马甲
-* Jea、Tea、Ryokou_Kiryu、PhishinQi、凉空桐鱼（涼空桐魚）、鱼七、冷鱼、鱼七樂（楽）、Alice、Alice Time Out、sakanana
+* Jea、Tea、Ryokou_Kiryu、PhishinQi、凉空桐鱼（涼空桐魚）、鱼七、冷鱼、鱼七樂（楽）、Alice、Alice Time Out、sakanana、Buried4596、BuriedCandy
 * **·如果你在哪里见到过我，请不要当面指出我的其他马甲·**
 ## 基本信息
 * 星座：白羊座
